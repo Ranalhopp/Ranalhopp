@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning programming logic 
 - 💞️ I’m looking to collaborate with my career and self development
 - 📫 How to reach me, pessoaspedro at instagram, pepessoas@outlook.com at email
-- Haja de tal modo para que a maxima de suas ações possa ser tida como um conceito geral.
+- Haja de tal modo para que a maxima de suas ações possa ser tida como um conceito universal.
 
 
 <!---
